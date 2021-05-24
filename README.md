@@ -5,4 +5,4 @@ First CAT memeCoin | Get $CATO Now!
 
 • Twitter : https://twitter.com/SolanaCATO
 
-• Discord : discord.gg/solanascato
+• Discord : https://discord.gg/solanascato
