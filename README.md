@@ -3,6 +3,6 @@ First CAT memeCoin | Get $CATO Now!
 
 • Telegram : http://t.me/SolanaCATO
 
-• Airdrop Form Link : https://forms.gle/WmzVTeMSiGUZ35do7
+• Twitter : https://twitter.com/SolanaCATO
 
-• Discord : Purrr
+• Discord : discord.gg/solanascato
